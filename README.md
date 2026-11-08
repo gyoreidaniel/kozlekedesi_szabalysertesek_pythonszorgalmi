@@ -1,0 +1,1 @@
+# k-zleked-si_szab-lys-rt-sek_pythonszorgalmi
